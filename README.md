@@ -1,1 +1,1 @@
-# https://NataliaVeremeychik.io/cv
+# https://NataliaVeremeychik.github.io/cv
